@@ -5,8 +5,7 @@ Campus Monterrey
 
 Septiembre 2021
 
-Integrantes: 
-Aldo Cedric Garza Ghaleb A0
+Integrantes:
 Enresto Enrique Urrea López A00833414
 
 Profesor: Doctora Maria Raquel Landa Cavazos
